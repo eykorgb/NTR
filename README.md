@@ -1,2 +1,0 @@
-# NTR
-NTR DEV
